@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Songoku
 - 👀 I’m interested in Crypto and NFTs
-- 🌱 I’m currently learning crypto-trading
+- 🌱 I started web3 on 2021 during hype of NFT games 
 - 💞️ I’m looking to collaborate on crypto-projects
 - 📫 Just tag me on discord (Songoku1691)
 
